@@ -1,4 +1,4 @@
-# Ren-ren Linas — Personal Portfolio
+# Ren-ren C. Linas — Personal Portfolio
 
 
 
